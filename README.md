@@ -41,4 +41,4 @@ Projects will include:
 
 ### 🔹 Connect With Me
 - LinkedIn: https://www.linkedin.com/in/daniel-kuyo-62500b148
-- Email: kuyokuse@gmail.com## Hi there 👋
+- Email: kuyokuse@gmail.com##
